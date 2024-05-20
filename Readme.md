@@ -1,7 +1,13 @@
 Ears: Bass Boost, EQ Any Audio!
+
 https://chrome.google.com/webstore/detail/ears-bass-boost-eq-any-au/nfdfiepdkbnoanddpianalelglmfooik
 
 Aberizm.json
+
+Twitch channel - aberizm
+#NYC IRL #IRL #English #IRL #Travel #Outdoors #Manhattan #Brooklyn #NY #nyc #Biking #Cycling
+
+https://www.twitch.tv/aberizm
 
 ru:Последний пресет
 en:Last preset
